@@ -1,0 +1,3 @@
+- 👋 Hi, my name is Victoria.
+- 👀 I’m interested in various things, but mainly I'm doing some web-stuff.
+- 📫 You can contact me by email: sixxaii.work@gmail.com
